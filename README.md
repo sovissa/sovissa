@@ -1,1 +1,1 @@
-![counter](https://moe-counter.glitch.me/get/@sovissa?theme=rule34)
+![counter](https://count.getloli.com/@sovissa?theme=rule34)
